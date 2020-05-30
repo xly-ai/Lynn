@@ -1,0 +1,2 @@
+# Lynn
+major in English
